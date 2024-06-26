@@ -1,4 +1,4 @@
-### Hi, I'm Madré!
+### Hi, I'm Madi!
 
 🎨 Qualified UI/UX Designer.<br/>
 👩🏼‍💻 Aspiring Front End Developer sharing about my journey and learnings in the field.<br/>
